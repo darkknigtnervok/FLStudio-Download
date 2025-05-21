@@ -1,5 +1,5 @@
 
-# Free Download Latest Version FL Studio
+# Free Download Latest Version FL Studio 2025
 
 > [!TIP]
 > *How to download:*
